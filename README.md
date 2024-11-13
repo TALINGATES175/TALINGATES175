@@ -2,7 +2,7 @@
 - 👀 I’m interested in The Legend of Zelda
 - 🌱 I’m currently learning History, science and technology
 - 💞️ I’m looking to collaborate on Gaming thank you!!!!!!!!!!!!!!
-- 📫 How to reach me at my email at moongaze125@gmail.com !
+- 📫 How to reach me at my email at (can't tell you)!
 - 😄 Pronouns: They/them
 - ⚡ Fun fact: I have played through every Zelda Game!
 
